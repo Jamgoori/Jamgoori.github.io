@@ -1,1 +1,0 @@
-# Jamgoori.github.io
